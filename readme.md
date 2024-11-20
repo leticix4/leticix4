@@ -1,1 +1,0 @@
-# Eu sou pica das galaxias
